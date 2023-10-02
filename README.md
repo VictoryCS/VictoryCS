@@ -2,7 +2,7 @@
 - 👀 I’m interested in Customer Support
 - 🌱 I’m currently learning How to be an Excellent Customer Support Specilist
 - 💞️ I’m looking to collaborate with other Customer Support Specilist
-- 📫 How to reach me +2348109980863
+- 📫 How to reach me ...
 
   
 <!---
